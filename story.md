@@ -1,0 +1,5 @@
+Story part1
+ahsxhajx
+jdbkjdbkjdn.jdnw
+jkjadbkjdbwjkd
+nwqdbkjbdkjdb
